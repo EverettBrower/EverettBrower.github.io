@@ -1,0 +1,3 @@
+# My page - Everett Brower
+
+Here are some things I'm doing today...
